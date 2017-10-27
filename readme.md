@@ -1,1 +1,1 @@
-read
+read&look
